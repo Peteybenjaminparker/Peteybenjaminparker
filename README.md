@@ -1,3 +1,6 @@
+i<div align="center"><sup>
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Emilys+Candy&pause=1000&color=c9d0e5&width=435&center=true&vCenter=true&lines=How+could+I+forget+your+pretty+face?;When+you+go+to+places;do+you+think+of+me?;Please+think+of+me.)](https://git.io/typing-svg)
 <p align="center">
 <img width="400" height="320" alt="image (46)" src="https://i.postimg.cc/HLVXKzmL/9-sin-titulo-(2).png" />
 
