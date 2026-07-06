@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" height="386" alt="image (46)" src="https://i.postimg.cc/HLVXKzmL/9-sin-titulo-(2).png" /> 
+<img width="600" height="390" alt="image (46)" src="https://i.postimg.cc/HLVXKzmL/9-sin-titulo-(2).png" /> 
 
 <div align="center"><sup>
   
