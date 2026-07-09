@@ -7,4 +7,4 @@
 
 <p align="center">
 <a
-href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=%F0%9D%93%9B%F0%9D%93%AA%F0%9D%93%B6%F0%9D%93%AB%F0%9D%93%BC&extraCount=2001&color=e7b5be"/></a>
+[![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?label=%F0%9D%93%9B%F0%9D%93%AA%F0%9D%93%B6%F0%9D%93%AB%F0%9D%93%BC&extraCount=2001&color=e7b5be)](https://hits.sh/github.com/RadioheadLover/hits/)
