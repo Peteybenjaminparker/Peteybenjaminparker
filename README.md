@@ -6,7 +6,7 @@
 
 
 
-<p align="center"> ݁݁<br/> <br/><sup>
+<p align="center"> <br/> <br/><sup>
 
   
  $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  $\color{#d0a7b8}{\text{ ᵒʳ }}$ ℳⲓᵐⁱ $\color{#edbed1}{\text{ ۫ ࣪ ˖  ͡꒱ }}$ 
