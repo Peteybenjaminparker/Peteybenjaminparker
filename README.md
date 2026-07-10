@@ -9,4 +9,4 @@
 <img width="600" height="420" alt="image (46)" src="https://i.postimg.cc/HLVXKzmL/9-sin-titulo-(2).png" /> 
 
 <p align="center">
-<img width="600" height="420" alt="image (37)" src="[https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png]" /> 
+<img width="60" height="82" alt="image (70)" src="[https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png]" /> 
