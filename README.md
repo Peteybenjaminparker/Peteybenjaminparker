@@ -13,7 +13,7 @@ $$\color{#d0a7b8}{𖹭}$$
 
 <div align="center"><sup>
 
- $\color{#edbed1}{\text{(𝒔)һᥱ)}}$  · ₊ㅤ $\color{#ebacc5}{\text{ᥣᥲmᑲ}}$~~ˢᵉˡᶠ~~ㅤ ᴗ ͜͝ ꒱ᣟ݂꒰ 
+$\color{#edbed1}{\text{(𝒔)һᥱ)}}$  · ₊ㅤ $\color{#ebacc5}{\text{ᥣᥲmᑲ}}$~~ˢᵉˡᶠ~~ㅤ ᴗ ͜͝ ꒱ᣟ݂꒰ 
   
 
 
