@@ -6,14 +6,18 @@
 
 
 
+<div align="center"><sup>
+  
+  $\color{#d0a7b8}{\text{ k᥆𝓪      ᵒʳ     ℳⲓₘᵢ }}$
+
+
+
 <img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
 
 
 
 
-<div align="center"><sup>
-  
-  $\color{#d0a7b8}{\text{ k᥆𝓪      ᵒʳ     ℳⲓₘᵢ }}$
+
   
   
