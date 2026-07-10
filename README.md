@@ -8,4 +8,4 @@
 <img width="600" height="479" alt="image (46)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
 
-<img width="37" height="79" alt="image (37)" src="https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png" />
+<img width="67" height="79" alt="image (37)" src="https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png" />
