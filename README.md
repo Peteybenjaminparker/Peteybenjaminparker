@@ -2,7 +2,7 @@
 <div align="center"><sup>
 
   
- $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  $\color{#d0a7b8}{\text{ᵒʳ}}$ ℳⲓᵐⁱㅤ$\color{##d0a7b8}{\text{ ۫ ࣪ ˖  ͡꒱ }}$ 
+ $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  $\color{#d0a7b8}{\text{ᵒʳ}}$ ℳⲓᵐⁱ$\color{##d0a7b8}{\text{ ۫ ࣪ ˖  ͡꒱ }}$ 
 
 
 <img src="https://i.postimg.cc/bNwnbxST/Tumblr-l-440196195211190.gif" alt="82"> ་ ˳ㅤ 
