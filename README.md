@@ -6,4 +6,4 @@
 <img width="600" height="420" alt="image (46)" src="https://i.postimg.cc/HLVXKzmL/9-sin-titulo-(2).png" /> 
 
 <p align="center">
-<img width="37" height="20" alt="image (37)"src="[https://postimg.cc/SnzXzxt1](https://i.postimg.cc/QdfcwBgD/2-sin-titulo-(1).png).
+<img width="50" height="69" alt="image (37)"src="[https://postimg.cc/SnzXzxt1](https://i.postimg.cc/QdfcwBgD/2-sin-titulo-(1).png).
