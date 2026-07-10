@@ -2,9 +2,12 @@
 <div align="center"><sup>
 
   
- $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  ་ ˳ㅤ 
+ $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  
+ ་ ˳ㅤ 
 $$\color{#d0a7b8}{৻ꪆ}$$
-</div></sub>   $\color{#FFE5E7}{\text{ᵒʳ}}$ ℳⲓᵐⁱㅤ   $\color{##FFE5E7}{\text{ ۫ഒㅤ}}$ 
+</div></sub>   
+
+$\color{#FFE5E7}{\text{ᵒʳ}}$ ℳⲓᵐⁱㅤ   $\color{##FFE5E7}{\text{ ۫ഒㅤ}}$ 
   
   
 
