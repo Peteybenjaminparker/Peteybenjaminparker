@@ -6,4 +6,4 @@
 
 
 <div align="center"><sup>
-<img width="600" height="840" alt="image (75)" src=https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png
+<img width="600" height="840" alt="image (46)" src=https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png
