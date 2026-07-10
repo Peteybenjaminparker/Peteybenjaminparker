@@ -8,7 +8,7 @@ $$\color{#d0a7b8}{৻ꪆ}$$
 </div></sub>
 
 
-
+$\color{#FFE5E7}{\text{ᵒʳ}}$ ℳⲓ**mі**ㅤ   $\color{##FFE5E7}{\text{ ۫ഒㅤ}}$ 
 
 <img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
