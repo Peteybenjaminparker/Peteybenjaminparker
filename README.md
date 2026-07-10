@@ -9,6 +9,6 @@
 
 <div align="center"><sup>
   
-  $\color{#d0a7b8}{\text{ k᥆**𝓪** }}$
+  $\color{#d0a7b8}{\text{        k᥆**𝓪**        }}$
   
   $\color{#d0a7b8}{\text{ᵒʳ}}$ ℳⲓ**ₘᵢ**ㅤ
