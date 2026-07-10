@@ -1,12 +1,11 @@
-<div align="center"><sup>
-  ་ ˳ㅤ 
-$$\color{#d0a7b8}{৻ꪆ}$$
-</div></sub>
 
 <div align="center"><sup>
   
-  $\color{#d0a7b8}{\text{ k᥆𝓪      ᵒʳ     ℳⲓₘᵢ }}$
-
+  $\color{#d0a7b8}{\text{   k᥆𝓪  }}$
+  
+  ་ ˳ㅤ 
+$$\color{#d0a7b8}{৻ꪆ}$$
+</div></sub>
 
 
 
