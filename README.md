@@ -1,16 +1,7 @@
-
-
-
-
-
-<div align="center"><sup>
-  
-[![Hits](https://hits.sh/github.com/RadioheadLover/hits.svg?label=%F0%9D%93%9B%F0%9D%93%AA%F0%9D%93%B6%F0%9D%93%AB%F0%9D%93%BC&extraCount=2001&color=efc3d0)](https://hits.sh/github.com/RadioheadLover/hits/)
-
-
 <div align="center"><sup>
   
   $\color{#d0a7b8}{\text{ k᥆𝓪      ᵒʳ     ℳⲓₘᵢ }}$
+  
 
 
 
