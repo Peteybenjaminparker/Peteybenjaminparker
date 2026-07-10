@@ -18,8 +18,7 @@ $$\color{#d0a7b8}{৻ꪆ}$$
 </div></sub>
 
 <div align="center"><sup>
-</div></sub>
-
+  
   $\color{#d0a7b8}{\text{ k᥆𝓪      ᵒʳ     ℳⲓₘᵢ }}$
   
   
