@@ -10,6 +10,4 @@
 
 <p align="center">
 <img width="60" height="82" alt="image (70)" src="[https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png]" /> 
-་ ˳ㅤ 
-$$\color{#d0a7b8}{৻ꪆ}$$
-</div></sub>
+<img src="https://file.garden/aeWblX8drAn4J6VK/ezgif.com-animated-gif-maker%20(52).gif" width="687">
