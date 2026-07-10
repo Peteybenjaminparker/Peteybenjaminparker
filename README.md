@@ -5,7 +5,7 @@
  $\color{#d0a7b8}{\text{꒰ ͜ㅤ゛ }}$ k᥆𝓪  $\color{#d0a7b8}{\text{ ᵒʳ }}$ ℳⲓᵐⁱ $\color{#edbed1}{\text{ ۫ ࣪ ˖  ͡꒱ }}$ 
 
 
-<img src="https://i.postimg.cc/bNwnbxST/Tumblr-l-440196195211190.gif" alt="82"> ་ ˳ㅤ 
+<img src="https://i.postimg.cc/bNwnbxST/Tumblr-l-440196195211190.gif" alt="82">  ་ ˳ㅤ 
 $$\color{#d0a7b8}{𖹭}$$
 </div></sub> 
 
