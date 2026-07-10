@@ -9,4 +9,4 @@
 
 <div align="left"><sup>
   
-<img width="67" height="79" alt="image (37)" src="https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png" />
+<img width="67" height="79" alt="image (37)" src="https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png" /> $\color{#d0a7b8}{\text{ᵒʳ}}$ ᥊іᥲ**ᥒg**ㅤ
