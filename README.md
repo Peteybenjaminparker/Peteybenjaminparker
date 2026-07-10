@@ -11,11 +11,6 @@
 
 
 
-<div align="center"><sup>
-</div></sub>
-་ ˳ㅤ 
-$$\color{#d0a7b8}{৻ꪆ}$$
-</div></sub>
 
 <div align="center"><sup>
   
