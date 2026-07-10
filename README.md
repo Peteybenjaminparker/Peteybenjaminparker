@@ -2,14 +2,14 @@
 <div align="center"><sup>
 
   
-  $\color{#d0a7b8}{\text{   k᥆𝓪  }}$
+  $\color{#d0a7b8}{\text{   k᥆𝓪  }}$ $\color{#FFE5E7}{\text{ᵒʳ}}$ ℳⲓᵐⁱㅤ   $\color{##FFE5E7}{\text{ ۫ഒㅤ}}$ 
   
   ་ ˳ㅤ 
 $$\color{#d0a7b8}{৻ꪆ}$$
 </div></sub>
 
 
-$\color{#FFE5E7}{\text{ᵒʳ}}$ ℳⲓᵐⁱㅤ   $\color{##FFE5E7}{\text{ ۫ഒㅤ}}$ 
+
 
 <img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
