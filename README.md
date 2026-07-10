@@ -1,3 +1,4 @@
+<div align="center"><sup>
   ་ ˳ㅤ 
 $$\color{#d0a7b8}{৻ꪆ}$$
 </div></sub>
