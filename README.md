@@ -7,6 +7,6 @@
 
 <img width="600" height="479" alt="image (46)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
-<div align="left"><sup>
+<div align="center"><sup>
   
 <img width="67" height="79" alt="image (79)" src="https://i.postimg.cc/htVtQNjC/2-sin-titulo-(1).png" /> $\color{#d0a7b8}{\text{ᵒʳ}}$ ᥊іᥲ**ᥒg**ㅤ
