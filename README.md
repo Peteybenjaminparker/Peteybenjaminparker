@@ -21,9 +21,7 @@ $\color{#edbed1}{\text{(𝒔)һᥱ}}$  · ₊ㅤ $\color{#edbed1}{\text{ᥣᥲm�
 
 <img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
 
-</div>
-<div align="center"><sup>
-[新♭ᵒᵒᵏ](https://friendlyspider.atabook.org/)
+
 
 <div align="center"><sup>
   
