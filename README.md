@@ -24,7 +24,7 @@ $\color{#edbed1}{\text{(𝒔)һᥱ}}$  · ₊ㅤ $\color{#edbed1}{\text{ᥣᥲm�
 </div>
 <div align="center"><sup>
 
-$$\color{#d0a7b8}{𝜗𝜚ྀི}$$   ⸝⸝ 
+$$\color{#d0a7b8}{𝜗𝜚˚.}$$   ⸝⸝ 
 [新♭ᵒᵒᵏ](https://friendlyspider.atabook.org/)
  ㅤ  𓏽⑅ ㅤ◞ ˳ ㅤ 
 
