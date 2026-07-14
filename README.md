@@ -19,7 +19,7 @@ $$\color{#d0a7b8}{𖹭}$$
 $\color{#edbed1}{\text{(𝒔)һᥱ}}$  · ₊ㅤ $\color{#edbed1}{\text{ᥣᥲmᑲ}}$**ˢᵉˡᶠ**ㅤ ⏖
   
 
-<img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/WbH5qfKh/9-sin-titulo-(2).png" />
+<img width="600" height="400" alt="image (37)" src="https://i.postimg.cc/RFSs2jkm/9-sin-titulo-(2).png" />
 
 </div>
 <div align="center"><sup>
